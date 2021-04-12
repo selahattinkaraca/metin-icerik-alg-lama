@@ -1,0 +1,1 @@
+# metin-icerik-alg-lama
